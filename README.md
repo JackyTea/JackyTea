@@ -1,1 +1,1 @@
-### [Hi 👋.](https://jackytea.com/)
+### [Hi 👋](https://jackytea.com/)
