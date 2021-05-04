@@ -1,1 +1,1 @@
-### [Click here to visit my site.](https://jackytea.com/)
+### [My site.](https://jackytea.com/)
